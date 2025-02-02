@@ -1,1 +1,1 @@
-# Karim is an english professor
+# Karim is an English professor
